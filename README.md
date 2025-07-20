@@ -25,7 +25,6 @@ Do not interract with me if:
 
 1. you're above 30 years old (Kids can int no problem ^^)
 2. Racist/Homophobic (I don't like it. If you don't support lgbt you don't have to just plz be nice)
-3. If you h@rass people online (Do not come close !!)
-4. If you ship minors with adults in any of the fandoms I'm in (It's wrong)
+3. If you ship minors with adults in any of the fandoms I'm in (It's wrong)
 
 Thank you for reading !! :D
