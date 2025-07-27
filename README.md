@@ -15,7 +15,7 @@ I speak 2 languages = Polish,English ^_^
 I'm a cosplayer so my skins are mostly cosplays.
 
 Fandoms i'm in/still talk about:
-Dandy's World, Forsaken (Kind of), Cookie run kingdom, Squid game, Arcane, Dsmp/Qsmp (Quit cosplaying but still talk about),Eddsworld, Mouthwashing, Octonauts, Httyd (rtte mostly), Regretevator, Nimona, Hazbin Hotel, Heluva Boss (kinda)
+Dandy's World, Forsaken (Kind of), Cookie run kingdom, Squid game, Arcane, Dsmp/Qsmp (Quit cosplaying but still talk about),Eddsworld, Mouthwashing, Octonauts, Httyd (rtte mostly), Regretevator, Nimona, Hazbin Hotel, Helluva Boss (kinda)
 
 (I honestly don't know if Wild Kratts has a fandom but I talk about it sometime)
 
